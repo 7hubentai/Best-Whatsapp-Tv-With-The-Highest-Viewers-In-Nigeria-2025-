@@ -28,3 +28,16 @@ Consistent and diverse content
 Reliable for small and large business promotions
 Contact:
 +234 907 713 1487
+
+
+Day by day, what you choose, what you think and what you do is who you become.
+
+*🔥😱 HOW TO FILL UP YOUR GROUPS FROM 0 TO 1025 AND MAKE ANYTHING FROM N50K TO N100K WEEKLY*
+
+This is for FREE ✅🤝
+
+Get my tutorial on how to fill up group from 0 to 1025 and make 50k to 100k or even more selling in the group... 
+
+Check the video link here 👇
+https://chat.whatsapp.com/LHmWmfk2XL0HpzQkIyIW3i
+
